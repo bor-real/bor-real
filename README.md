@@ -1,1 +1,2 @@
-I write code while im bored
+#GET OFF MY PROFILE
+save yourself from the cringe
