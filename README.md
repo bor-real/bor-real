@@ -1,2 +1,2 @@
-#GET OFF MY PROFILE
+# GET OFF MY PROFILE
 save yourself from the cringe
