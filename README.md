@@ -1,3 +1,3 @@
 # Boreal
 
-[![Boreal](profile-cropped.png)
+![Boreal](profile-cropped.png)
