@@ -1,3 +1,3 @@
 # Boreal
 
-[![My Website](https://bor-real.github.io)](profile-cropped.png)
+[![Boreal](profile-cropped.png)
